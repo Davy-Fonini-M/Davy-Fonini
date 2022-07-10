@@ -1,9 +1,7 @@
 ### Hi, nice to see you here, I'm Davy Fonini, it's a great pleasure to meet you! 😄
-<br>
 
 ### Olá, que bom te ver por aqui, eu sou o Davy Fonini, é um enorme prazer em te conhecer! 😄
 <br>
-
 
 ### These are my social networks:
 
